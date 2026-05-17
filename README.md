@@ -2,16 +2,19 @@
  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎   ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ <img width="400" height="76" alt="image" src="https://github.com/user-attachments/assets/beadfc30-348a-4e07-b175-fe311f50e48e" /> ‎   ‎‎   ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ 
 
 ╰✦﹒ Feel free to interact ! I'm nice and approachable, i won't bite
-        ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎‎   ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎  ‎   ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  
-╰✦﹒ C(uddle) + H(ide) are always encouraged unless my name states otherwise ! ‎ ‎   ‎ ‎  ‎   ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  
-╰✦﹒Don't copy / take insp off my skins unless given permission, thank you !  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎  ‎   ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  
+
+╰✦﹒ C(uddle) + H(ide) are always encouraged unless my name states otherwise !
+
+╰✦﹒Don't copy / take insp off my skins unless given permission, thank you !
+
 ╰✦﹒My first language isn't English, please be patient w/ me.
-        ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎‎   ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎  ‎   ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  
- ╰✦﹒**Don't come up to me just because me and my friend are dressed up as / talking about a ship you don't like, i have no time for you.**
-         ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎‎   ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎  ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎  ‎   ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  
+
+ ╰✦﹒**Don't come up to me just because me and my friend are dressed up as / talking about a ship you don't like, i have no time for you**‎.
+ 
  ╰✦﹒Don't roleplay with me unless you're my friend it makes me awkward + uncomfortable.
-  ‎‎ ‎   ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎ ‎  ‎   ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  
-╰✦﹒ And remember, **everyone has their own likes and dislikes, their own preferences**.‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  
+
+╰✦﹒ And remember, **everyone has their own likes and dislikes, their own preferences**.
+
 ╰✦﹒Not everyone has to own up to your expectation. Some of you guys really need it spoon-fed to you so you can understand.
              ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ <img width="400" height="76" alt="image" src="https://github.com/user-attachments/assets/beadfc30-348a-4e07-b175-fe311f50e48e" />
     
