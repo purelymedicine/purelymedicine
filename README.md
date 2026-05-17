@@ -15,7 +15,9 @@
 
 ╰✦﹒ And remember, **everyone has their own likes and dislikes, their own preferences**.
 
-╰✦﹒Not everyone has to own up to your expectation. Some of you guys really need it spoon-fed to you so you can understand.
+╰✦﹒Not everyone has to own up to your expectations. Some of you guys really need it spoon-fed to you so you can understand.
+
+╰✦﹒Read carrd for more info, it's linked.
              ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎  ‎ <img width="400" height="76" alt="image" src="https://github.com/user-attachments/assets/beadfc30-348a-4e07-b175-fe311f50e48e" />
     
     
